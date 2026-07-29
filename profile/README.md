@@ -2,7 +2,7 @@
 
 <br>
 
-# HFU × KAPPD
+# HGU × KAPPD
 
 ### 한동대학교 × KAPPD 산학협력 프로젝트
 
